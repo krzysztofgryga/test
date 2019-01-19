@@ -1,2 +1,1 @@
 # Nauka Gita
-addasdasdsadasd
